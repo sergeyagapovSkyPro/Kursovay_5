@@ -1,1 +1,0 @@
-# Kursovay_5
